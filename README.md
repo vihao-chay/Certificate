@@ -1,4 +1,4 @@
-<img width="654" height="634" alt="image" src="https://github.com/user-attachments/assets/0b8c9b3d-acbe-4454-91dc-8a45e6608fe7" /># 🏆 Proof of Achievements & Certifications
+# 🏆 Proof of Achievements & Certifications
 
 ## 📚 Certification
 
